@@ -21,7 +21,7 @@
 
 ### More important
 
-- it does not tell me how valuable you are or can be as a person, son/daughter,  brother/sister, father/mother, husband/wife, friend, colleague, partner
+- it does not tell me how valuable you are or can be as a person, son/daughter,  brother/sister, father/mother, husband/wife, friend, colleague, partner,
 ________ (fill-in the blank)
 
 
