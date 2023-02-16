@@ -25,6 +25,14 @@
 ________ (fill-in the blank)
 
 
+### Still not convinced?
+
+- Would you choose your friends based on their GPA?
+- Would you choose your spouse or life partner based on their GPA?
+
+I doubt that on your death bed you'll say: "Oh, I wish I had achieved a GPA of ____ (fill-in the blank)"
+
+
 ### In summary
 
 Don't get obsessed that much about your GPA. Your GPA does not (and should not) define you. Trust me when I tell you that it won't be the decisive factor for your success in this life.
